@@ -3,4 +3,5 @@ Permainan yang meminta pemainnya untuk mengendalikan sebuah mahluk yang menyerup
 
 Nathaniel Faustine (1806200066)
 Suryanoto Negoro (1806200122)
+
 Kelompok 17
